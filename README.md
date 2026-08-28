@@ -1,1 +1,1 @@
-Eu amo GTA 6
+Eu não amo mais GTA6 >:(
